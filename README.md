@@ -1,2 +1,0 @@
-# Uciha
-Sama Sama Belajar
